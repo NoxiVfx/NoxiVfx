@@ -1,0 +1,5 @@
+- 👋 Oi, eu sou @NoxiVfx
+- 👀 Estou interessado em investir
+- 🌱 atualmente estou aprendendo a programar
+- 💞️ Procuro colaborar nas aulas
+- 📫 Como chegar até mim andando
