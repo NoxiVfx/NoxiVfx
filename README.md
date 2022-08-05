@@ -1,4 +1,4 @@
-- 👋 Oi, eu sou @CarlosH
+- 👋 Oi, eu sou @Carlos
 - 👀 Estou interessado em investir
 - 🌱 atualmente estou aprendendo a programar
 - 💞️ Procuro colaborar nas aulas
